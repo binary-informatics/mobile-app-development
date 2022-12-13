@@ -2,7 +2,7 @@ Looking for quality services at affordable rates? Look no further than Binary In
 
 From developing highly interactive games and apps to offering solutions for business needs, we make sure that each app is tailored to fit your specific requirements. We are equipped with the technology and resources to create innovative apps that stand out from the crowd. Our team of app developers will work with you to establish an app ecosystem with your brand.
 
-**A team of App developers that can easily be relied upon**
+**A team of App developers that can easily be relied upon**.
 
 No matter what kind of app you are planning to develop – from games to e-commerce, we have the right skills and expertise to help you craft the perfect app. Moreover, Binary Informatics is equipped with a wide range of services including but not limited to mobile app development, iOS application development, Android app development, custom application development, e-commerce app development, API development, and web application development.
 Our app development services are comprehensive, highly interactive, and are focused on your needs and goals.
